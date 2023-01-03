@@ -12,9 +12,7 @@ manibus aether his nomine, Aurora, voce. Ipse virga res vidit profanis vocatos,
 quod vestigia cineres, dum silva in vapor. Tendite caelestibus quam, sub inplet
 prole eveniet **superi** rus proles venenis potestas Tereo pluribus sunto.
 
-Perque cessisse, hoc tum auras sinuosa. Pressant nec vinci primoque quoque
-funibus est: et tempore vetitorum? Coercet tantum adsensibus religata protinus
-venturas et Achilli, nat iam cum deque.
+
 
 ## Heading 2
 
